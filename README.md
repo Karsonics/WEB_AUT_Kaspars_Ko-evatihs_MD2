@@ -1,1 +1,1 @@
-# WEB_AUT_Kaspars_Ko-evatihs_MD2
+# WEB_AUT_Kaspars_Koļevatihs_MD2
